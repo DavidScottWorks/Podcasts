@@ -1,2 +1,2 @@
 # Podcasts
-Just a list of great podcasts I listen to on a nearly daily basis. I'll provide links when I have them.
+Just a list of great podcasts I listen to on a near daily basis. I'll provide links when I have them
